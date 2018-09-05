@@ -3,4 +3,5 @@ Git is free software
 Git is so amazing
 666666、
 mkasmdl
-lol ING WIN & 1111
+lol ING WIN and 1111
+
